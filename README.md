@@ -152,4 +152,4 @@ This portfolio is open source and available for personal use.
 
 **Learning • Building • Growing** ✨
 
-© 2026 Rishana Rasheed
+© 2026 Rishana Rasheed 
